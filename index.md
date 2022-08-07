@@ -1,6 +1,7 @@
 #8月7号信息：为门徒洗脚
 # 经文：约翰福音13：1-20
 #讲员：王姊妹
+<audio controls src="./为门徒洗脚.mp3"></audio>
 ![image](https://user-images.githubusercontent.com/91267933/183274777-ba38e46b-58ec-4c94-ad22-c9f84fcc8c19.png)
 ![image](https://user-images.githubusercontent.com/91267933/183274779-b875aeac-f20a-4f48-8f0e-e7213e7e3565.png)
 ![image](https://user-images.githubusercontent.com/91267933/183274784-f2d23f57-cec3-46a0-9999-4e80970990a1.png)
